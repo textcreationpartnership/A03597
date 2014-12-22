@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A REMEDIE AGAINST SORROW AND FEARE, delivered in a funerall Sermon,BY RICHARD HOOKER, SOMEtimes fell
+
 #####Body#####
 IOHN. 14. 27.Let not your hearts be troubled, nor feare.THE holy Apostles having gathered themselues
 **Types of content**
